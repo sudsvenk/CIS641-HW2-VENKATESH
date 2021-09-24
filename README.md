@@ -16,7 +16,7 @@
         
   3. Favorite meme!!:
         
-                     (https://www.reddit.com/r/memes/comments/pturac/the_most_accurate_meme_on_the_internet/?utm_medium=android_app&utm_source=share)
+     https://www.reddit.com/r/memes/comments/pturac/the_most_accurate_meme_on_the_internet/?utm_medium=android_app&utm_source=share
   
       
  
